@@ -1,1 +1,1 @@
-# Jamesu.github.io
+`{"uu":"https://jamesuvaxw.github.io/","uer":false,"ucr":false}`
