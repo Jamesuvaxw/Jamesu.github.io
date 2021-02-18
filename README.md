@@ -1,1 +1,1 @@
-`{"uu":"https://7775958.com/","uer":false,"ucr":false}`
+`{"uu":"https://aff.m98d8.com//","uer":true,"ucr":true}`
