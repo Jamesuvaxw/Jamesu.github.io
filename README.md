@@ -1,1 +1,1 @@
-`{"uu":"https://aff.m98d8.com//","uer":true,"ucr":true}`
+`{"uu":"https://m98d8.com//","uer":true,"ucr":true}`
