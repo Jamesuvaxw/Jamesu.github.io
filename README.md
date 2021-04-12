@@ -1,1 +1,1 @@
-`{"uu":"https://lin.ee/LNXldg0","uer":true,"ucr":true}`
+`{"uu":"https://lin.ee/zsRxi2Z","uer":true,"ucr":true}`
